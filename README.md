@@ -1,16 +1,29 @@
-### Hi there 👋
+haiii pony towners!!! 
 
-<!--
-**kazugorou/kazugorou** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+i'm syd (OR THEODORE)!!
+they/he pronounius
 
-Here are some ideas to get you started:
+...
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+DNI
+
+younger than 16
+
+...
+
+BYF
+
+feel free to interact, especially over whisper if i'm afk!
+
+i hide people very freely <3 i'm kinda mean LMAO
+
+hyperfixating trigun and honkai star rail !!
+
+...
+
+here my [carrd](https://azazelis.carrd.co)
+
+my [kinlist](https://listography.com/yaonokitsune) i know its long.... sighs sooooo loud
+
+most social medias are yaonokitsune or azazelis, ask me for my discord!
+
