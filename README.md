@@ -1,3 +1,5 @@
+![wolfwood-trigun gfrrrrrrrr](https://github.com/kazugorou/kazugorou/assets/137842329/27599315-3ae6-4f86-9abd-d218f63e6497)
+
 haiii pony towners!!! 
 
 i'm syd (OR THEODORE)!!
