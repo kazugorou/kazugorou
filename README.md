@@ -11,6 +11,8 @@ DNI
 
 younger than 16
 
+nijisanji fans LOL
+
 ...
 
 BYF
