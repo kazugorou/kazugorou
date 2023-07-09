@@ -11,7 +11,7 @@ DNI
 
 younger than 16
 
-nijisanji fans LOL
+nijisanji fans, dream or whatever its called their fuckin mcyt group, idv players cuz im a hypocrite LOL
 
 ...
 
