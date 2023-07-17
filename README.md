@@ -21,7 +21,11 @@ feel free to interact, especially over whisper if i'm afk!
 
 i hide people very freely <3 i'm kinda mean LMAO
 
-i DO think your skins are pretty than mine, it's just a fact
+i DO think your skins are pretty than mine, it's just a REALITY
+
+if im sitting with someone it doesnt mean i ship the characters... NO I DONT SHIP SPONGEBOB X WOLFWOOD
+
+if our ponies look similar u can literally just ask me to change mine idc (i care a lot)
 
 hyperfixating trigun and honkai star rail !!
 
