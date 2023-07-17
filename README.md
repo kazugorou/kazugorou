@@ -15,11 +15,13 @@ nijisanji fans, dream or whatever its called their fuckin mcyt group, idv player
 
 ...
 
-BYF
+BYF/BYI
 
 feel free to interact, especially over whisper if i'm afk!
 
 i hide people very freely <3 i'm kinda mean LMAO
+
+i DO think your skins are pretty than mine, it's just a fact
 
 hyperfixating trigun and honkai star rail !!
 
