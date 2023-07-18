@@ -37,3 +37,5 @@ my [kinlist](https://listography.com/yaonokitsune) i know its long.... sighs soo
 
 most social medias are yaonokitsune or azazelis, ask me for my discord!
 
+ty if you're reading this hi
+
