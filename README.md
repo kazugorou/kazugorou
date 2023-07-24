@@ -13,6 +13,8 @@ younger than 16
 
 nijisanji fans, dream or whatever its called their fuckin mcyt group, idv players cuz im a hypocrite LOL
 
+i will immediately perm hide u if u have a skin from dmmd or j*hn doe
+
 ...
 
 BYF/BYI
