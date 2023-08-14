@@ -29,7 +29,7 @@ if im sitting with someone it doesnt mean i ship the characters... NO I DONT SHI
 
 if our ponies look similar u can literally just ask me to change mine idc (i care a lot)
 
-hyperfixating trigun and honkai star rail !!
+hyperfixating trigun and enstars !!
 
 ...
 
