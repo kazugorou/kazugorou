@@ -25,11 +25,11 @@ i hide people very freely <3 i'm kinda mean LMAO
 
 i DO think your skins are pretty than mine, it's just a REALITY
 
-if im sitting with someone it doesnt mean i ship the characters... NO I DONT SHIP SPONGEBOB X WOLFWOOD
+if im sitting with someone it doesnt mean i ship the characters
 
 if our ponies look similar u can literally just ask me to change mine idc (i care a lot)
 
-hyperfixating trigun and enstars !!
+hyperfixating trigun, sanrio and enstars !!
 
 ...
 
@@ -38,6 +38,4 @@ here my [carrd](https://azazelis.carrd.co)
 my [kinlist](https://listography.com/yaonokitsune) i know its long.... sighs sooooo loud
 
 most social medias are yaonokitsune or azazelis, ask me for my discord!
-
-ty if you're reading this hi
 
