@@ -29,7 +29,7 @@ if im sitting with someone it doesnt mean i ship the characters
 
 if our ponies look similar u can literally just ask me to change mine idc (i care a lot)
 
-hyperfixating trigun !! talk to me abt trigun <3
+hyperfixating trigun and devil may cry !! talk to me abt trigun <3
 
 ...
 
