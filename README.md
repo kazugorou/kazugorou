@@ -29,16 +29,10 @@ if im sitting with someone it doesnt mean i ship the characters
 
 if our ponies look similar u can literally just ask me to change mine idc (i care a lot)
 
-hyperfixating trigun and devil may cry !! talk to me abt trigun <3
+hyperfixating hermitcraft/life series, trigun and devil may cry !! renchantingduo beloveds <3
 
 ...
 
 here my [carrd](https://azazelis.carrd.co)
 
-my [kinlist](https://listography.com/yaonokitsune) i know its long.... sighs sooooo loud
-
 most social medias are yaonokitsune or azazelis, ask me for my discord!
-
-![tumblr_27f1f88ee224cc03fa01b64bef91aa50_4d08a52f_540](https://github.com/kazugorou/kazugorou/assets/137842329/88add630-71bb-462f-8a19-ad9484a05c92)
-
-(wish he wasn't whitewashed)
