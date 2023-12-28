@@ -1,5 +1,3 @@
-![wolfwood-trigun gfrrrrrrrr](https://github.com/kazugorou/kazugorou/assets/137842329/27599315-3ae6-4f86-9abd-d218f63e6497)
-
 haiii pony towners!!! 
 
 i'm syd (OR THEODORE)!!
@@ -29,10 +27,12 @@ if im sitting with someone it doesnt mean i ship the characters
 
 if our ponies look similar u can literally just ask me to change mine idc (i care a lot)
 
-hyperfixating hermitcraft/life series, trigun and devil may cry !! renchantingduo beloveds <3
+hyperfixating hermitcraft/life series !! renchantingduo beloveds <3
 
 ...
 
 here my [carrd](https://azazelis.carrd.co)
 
 most social medias are yaonokitsune or azazelis, ask me for my discord!
+
+![wolfwood-trigun gfrrrrrrrr](https://github.com/kazugorou/kazugorou/assets/137842329/27599315-3ae6-4f86-9abd-d218f63e6497)
