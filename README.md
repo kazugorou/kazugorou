@@ -34,5 +34,3 @@ hyperfixating hermitcraft/life series !! renchantingduo beloveds <3
 here my [carrd](https://azazelis.carrd.co)
 
 most social medias are yaonokitsune or azazelis, ask me for my discord!
-
-![wolfwood-trigun gfrrrrrrrr](https://github.com/kazugorou/kazugorou/assets/137842329/27599315-3ae6-4f86-9abd-d218f63e6497)
