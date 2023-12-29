@@ -1,7 +1,9 @@
 haiii pony towners!!! 
 
 i'm syd (OR THEODORE)!!
+
 they/he pronounius
+
 autism + adhd
 
 ...
