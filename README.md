@@ -30,7 +30,7 @@ if im sitting with someone it doesnt mean i ship the characters
 
 if our ponies look similar u can literally just ask me to change mine idc (i care a lot)
 
-hyperfixating hermitcraft/life series !! renchantingduo beloveds <3 treebark enjoyers int! i dont bite sometimes..
+hyperfixating hermitcraft/life series im kinda new but!! renchantingduo beloveds <3 treebark enjoyers int! i dont bite sometimes..
 
 ...
 
