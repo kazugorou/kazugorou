@@ -6,6 +6,8 @@ they/he pronounius
 
 autism + adhd
 
+ossum lesbian
+
 ...
 
 DNI
