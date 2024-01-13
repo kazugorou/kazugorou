@@ -1,3 +1,5 @@
+![](https://github.com/kazugorou/kazugorou/blob/main/hermitcraft-rendog.gif)
+
 haiii pony towners!!! 
 
 i'm syd (OR THEODORE)!!
