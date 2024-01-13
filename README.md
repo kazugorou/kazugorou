@@ -24,7 +24,7 @@ i will immediately perm hide u if u have a skin from dmmd or j*hn doe
 
 BYF/BYI
 
-feel free to interact, especially over whisper if i'm afk!
+feel free to interact, especially over whisper if i'm afk! i dont bite.. sometimes
 
 i hide people very freely <3 i'm kinda mean LMAO
 
@@ -35,8 +35,6 @@ if im sitting with someone it doesnt mean i ship the characters
 if our ponies look similar u can literally just ask me to change mine idc (i care a lot)
 
 hyperfixating hermitcraft/life series !! renchantingduo n treebark beloveds <3
-
-int! i dont bite sometimes..
 
 ...
 
