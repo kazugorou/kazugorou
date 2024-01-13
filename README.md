@@ -41,3 +41,5 @@ int! i dont bite sometimes..
 here my [carrd](https://azazelis.carrd.co)
 
 most social medias are yaonokitsune or azazelis, ask me for my discord!
+
+![](https://github.com/kazugorou/kazugorou/blob/main/bdoubleo100-spin.gif)
