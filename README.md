@@ -28,7 +28,7 @@ feel free to interact, especially over whisper if i'm afk! i dont bite.. sometim
 
 i hide people very freely <3 i'm kinda mean LMAO
 
-i DO think your skins are pretty than mine, it's just a REALITY
+i DO think your skins are prettier than mine, it's just a REALITY
 
 if im sitting with someone it doesnt mean i ship the characters
 
