@@ -32,7 +32,7 @@ i DO think your skins are prettier than mine, it's just a REALITY
 
 if im sitting with someone it doesnt mean i ship the characters
 
-if our ponies look similar u can literally just ask me to change mine idc (i care a lot)
+if our ponies look similar u can literally just ask me to change mine idc (i care a lot) my style is inconsistent <3
 
 hyperfixating hermitcraft/life series !! renchantingduo n treebark beloveds <3
 
