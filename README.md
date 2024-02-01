@@ -24,7 +24,7 @@ i will immediately perm hide u if u have a skin from dmmd or j*hn doe
 
 BYF/BYI
 
-feel free to interact, especially over whisper if i'm afk! i'm usually offtab
+feel free to interact, especially over whisper if i'm afk! i'm usually offtab, and i probably won't int first unless its to crown you..
 
 i hide people very freely <3 i'm kinda mean LMAO
 
