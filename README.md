@@ -34,7 +34,7 @@ if im sitting with someone it doesnt mean i ship the characters
 
 if our ponies look similar u can literally just ask me to change mine idc (i care a lot) my style is inconsistent <3
 
-hyperfixating hermitcraft/life series !! renchantingduo n treebark beloveds <3 i ship chars not cc
+hyperfixating hermitcraft/life series !! ren + his green people <3 <3 <3 i ship chars not cc
 
 ...
 
