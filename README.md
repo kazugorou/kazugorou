@@ -45,3 +45,4 @@ why are both my fixations roblox and minecraft related. what has syd come to.
 most social medias are yaonokitsune or azazelis, ask me for my discord!
 
 
+![](miché-miche.gif)
