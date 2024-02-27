@@ -20,6 +20,8 @@ nijisanji fans, dsmp stans, wilbur soot supporters/stans, idv players cuz im a h
 
 i will immediately perm hide u if u have a skin from dmmd or j*hn doe
 
+if ur generally an unforgiving person
+
 ...
 
 BYF/BYI
