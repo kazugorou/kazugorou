@@ -36,8 +36,10 @@ if our ponies look similar u can literally just ask me to change mine idc (i car
 
 hyperfixating hermitcraft/life series + regretevator !! ren + his green people <3 <3 <3 i ship chars not cc
 
+why are both my fixations roblox and minecraft related. what has syd come to.
+
 ...
 
 most social medias are yaonokitsune or azazelis, ask me for my discord!
 
-![](https://github.com/kazugorou/kazugorou/blob/main/bdoubleo100-spin.gif)
+
