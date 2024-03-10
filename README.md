@@ -36,6 +36,8 @@ if im sitting with someone it doesnt mean i ship the characters
 
 if our ponies look similar u can literally just ask me to change mine idc (i care a lot) my style is inconsistent <3
 
+inspo is a-ok, copying is not.. cuz like... i dont want two of me runnin around
+
 hyperfixating hermitcraft/life series + regretevator !! ren + his green people <3 <3 <3 i ship chars not cc
 
 why are both my fixations roblox and minecraft related. what has syd come to.
