@@ -20,6 +20,8 @@ if ur generally an unforgiving person but that does not apply in all situations 
 
 nijisanji fans, dsmp stans, wilbur soot supporters/stans, idv players cuz im a hypocrite LOL
 
+valentino skins
+
 i will immediately perm hide u if u have a skin from dmmd or j*hn doe
 
 ...
